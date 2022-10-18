@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sudheer Reddy
 - 👀 I’m interested in hangouts..
-- 🌱 I’m currently learning visakhapatnam..
+- 🌱 I’m currently learning Many things in mind.
 - 💞️ I’m looking to collaborate on busy..
 - 📫 How to reach me ...
 
